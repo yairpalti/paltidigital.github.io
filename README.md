@@ -1,0 +1,1 @@
+# paltidigital.github.io
